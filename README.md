@@ -1,5 +1,5 @@
 ### Hi there 👋
-![image](https://github.com/Raci-Dev/Raci-Dev/assets/96958875/5240561f-1166-44ef-8096-5ef4b15975a6)
+![Diseño sin título](https://github.com/Raci-Dev/Raci-Dev/assets/96958875/7c3b9dce-b6fe-4d5d-ab33-6b0b86663f33)
 <!--
 **Raci-Dev/Raci-Dev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
